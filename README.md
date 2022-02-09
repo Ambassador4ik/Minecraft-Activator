@@ -1,4 +1,5 @@
 Minecraft for Windows 10 activator by Ambassador4ik
+
 Discord: Ambassador4ik#7777
 
 Usage-en: if you already have Minecraft for Windows 10 installed, simply run activator.bat.
